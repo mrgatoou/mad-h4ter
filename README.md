@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**mad-h4ter/mad-h4ter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Image Alt](https://github.com/disc0-png/disc0-png/blob/main/9%20sin%20t%C3%ADtulo_20260421144310.png?raw=true)
+# 𝐇𝐞𝐲 𝐰𝐬𝐩
+. I'm Disco/Gato . He/It ONLY! (cmon guyssss)
 
-Here are some ideas to get you started:
+ [Atabook](https://discomrgato.atabook.org) .
+ [Prons Page](https://en.pronouns.page/@Mr.Gato) . 
+ [Straw](https://mrgatoitssupertuff.straw.page) .
+ [Guns.lol](https://guns.lol/disco.) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Image Alt](https://media1.tenor.com/m/_Lrrm4jcEwcAAAAC/finn-shrimpo.gif)
+<--- Me n him btww
+# Shrimpo hvy kin (dupes int freely!!)
+
