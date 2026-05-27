@@ -8,7 +8,7 @@
   
   
   
-#  (thats my shrimpo kinsona btw bahahhah)
+#  (thats my kinsona bahahhaah)
   this me and him btw 
 ![Image Alt](https://media.tenor.com/bh4_Jc40JdwAAAAM/skittlesiskewl-havuky.gif)
 
