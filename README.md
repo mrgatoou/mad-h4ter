@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=mad-h4ter&style=plastic&color=f4495a&label=Bricks)
+
   $$\color{teal}{Shrimpo \space Heavy \space Fictionkin}$$
 
  ![Image Alt](https://media.tenor.com/Z92kFT9J7JIAAAAj/divider.gif)
