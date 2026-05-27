@@ -1,4 +1,7 @@
-![](https://komarev.com/ghpvc/?username=mad-h4ter&style=plastic&color=f4495a&label=Bricks)
+
+<div align=center
+
+  ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=plastic&color=f4495a&label=Bricks)
 
   $$\color{teal}{Shrimpo \space Heavy \space Fictionkin}$$
 
