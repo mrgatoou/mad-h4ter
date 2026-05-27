@@ -1,4 +1,6 @@
-$$\color{teal}{Shrimpo \space Heavy \space Fictionkin}$$
+  $$\color{teal}{Shrimpo \space Heavy \space Fictionkin}$$
+
+ ![Image Alt](https://media.tenor.com/Z92kFT9J7JIAAAAj/divider.gif)
 
 ![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/DiscoShrimpoGato.png?raw=true)
 
@@ -6,7 +8,7 @@ $$\color{teal}{Shrimpo \space Heavy \space Fictionkin}$$
   
   
   
-  
+#  
 -------------------------------- [新book](https://discomrgato.atabook.org) 
   
   
