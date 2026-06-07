@@ -10,7 +10,7 @@
 
 ![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/Post%20by%20@1990smallgoth%20%C2%B7%201%20image.jpg?raw=true)
   
-  
+  @baked-swe3ts is also me btw 
   
 #  (thats my kinsona bahahhaah)
   this me and him btw 
