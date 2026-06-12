@@ -6,21 +6,12 @@
 
   $$\color{Blue}{(Soft-sharing + Mirror-sharing)}$$
 
-![Image Alt](https://media1.tenor.com/m/uAvADHM7hUYAAAAC/dandys-world-havuky.gif)
-
-
- <div align=center
-
 ![Image Alt](https://64.media.tumblr.com/d67374ccf38e04655a247f2b593b799a/c8381bb53f84d080-ff/s2048x3072/96a51756468bfae49ca5a0c2da6335d83a09d8ab.pnj)
 
 ![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/WhatsApp%20Image%202026-06-12%20at%2010.40.53.jpeg?raw=true)
 
 
-
-
- <div align=center
-  
-  ![Image Alt](https://64.media.tumblr.com/daffd72b4ea2a95086074d5749a2b12b/c8381bb53f84d080-3c/s2048x3072/701d9633a26a23ac72151078fd5f2286ea15e16d.gifv)
+ ![Image Alt](https://64.media.tumblr.com/daffd72b4ea2a95086074d5749a2b12b/c8381bb53f84d080-3c/s2048x3072/701d9633a26a23ac72151078fd5f2286ea15e16d.gifv)
 
 
 
